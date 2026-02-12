@@ -1,1 +1,5 @@
 # financial-mgr
+
+INSHARAH IRFAN NAZIR
+AABIA ALI
+ZARA NOOR QAZI
